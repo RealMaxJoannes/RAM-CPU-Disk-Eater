@@ -7,4 +7,4 @@ For the people who use ancient PC's, You're fucked really bad, like deadass, You
 
 For the people who use the most modern PC, You are completely fine, maybe a few lagging and stuttering, but that's about it.
 
-Use it at your own risk, or be a redneck if you are a reckless guy, Either way, stay safe.
+Use it at your own risk, even if you are a reckless guy, Either way, stay safe.
